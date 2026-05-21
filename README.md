@@ -146,8 +146,10 @@ electronic parts you will need:
 
 -you are ready to play !
 
-you can find complete tutorial with images on our patreon here:
-https://www.patreon.com/cw/orama3dvibes
+you can find complete tutorial with images on the tutorial file.
+
+support here
+**https://buymeacoffee.com/orama3dvibes**
 
 
 
